@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Coppa2b
-- 👀 I’m interested ineverything
+- 👀 I’m interested in everything
 - 🌱 I’m currently learning mining
 - 💞️ I’m looking to collaborate on money making
 - 📫 How to reach me by email
